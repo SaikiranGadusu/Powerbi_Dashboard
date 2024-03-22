@@ -17,6 +17,8 @@
   
 Conclusions:
 Strategic Actions:
+
+
 Strategic Product Focus: Cease sales of electronic games and furnishings due to substantial losses.
 Seasonal Marketing Approach: Ramp up marketing efforts during April, May, and June to stimulate higher order volumes.
 Promotional Strategies: Offer discounts and special offers on furniture-related products to incentivize purchases.
